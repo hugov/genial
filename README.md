@@ -1,0 +1,2 @@
+# genial
+Repositório de ideias !!!
